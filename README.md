@@ -1,0 +1,1 @@
+# MagazineXA.githib.io
